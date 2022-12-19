@@ -1,4 +1,4 @@
-# Welcome to Our Japan Life, the creators of Find A Doc Japan
+# Welcome to Our Japan Life, the creators of Find A Doc, Japan!
 
 
 ## Mission 🎯
